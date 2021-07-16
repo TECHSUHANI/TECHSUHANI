@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @TECHSUHANI
+- 👀 I’m interested in- COMPUTERS 
+- 🌱 I’m currently learning Coding
